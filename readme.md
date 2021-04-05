@@ -1,3 +1,3 @@
 A lire 
 
-Par rémi
+Par Rémi
